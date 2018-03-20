@@ -7,3 +7,7 @@ ZCZC W01 already tried
 ZCZC W02 sudah dicoba
 
 ZCZC W03 sudah dicoba tapi belum begitu mengerti
+
+ZCZC W04 sudah dicoba
+
+ZCZC W05 sudah dicoba
